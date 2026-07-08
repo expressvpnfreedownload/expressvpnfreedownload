@@ -3,11 +3,6 @@
 ExpressVPN Free Download | Complete Installation Guide
 
 ==============================================
-
-:Description: Learn how to download ExpressVPN quickly and securely. Follow this complete guide to download, install, activate, and start protecting your devices with ExpressVPN.
-
-:Keywords: expressvpn free download, expressvpn download, download expressvpn, expressvpn app download, expressvpn for windows, expressvpn for mac, expressvpn latest version, expressvpn installation guide
-
 Introduction
 
 ============
